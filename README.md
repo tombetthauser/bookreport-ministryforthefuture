@@ -10,6 +10,10 @@
 
 ***
 
+**One Sentence Summary:** In the very near future a heat wave disaster caused kills millions of people so the United Nations creates a body to advocate for future global citizens nicknamed the Ministry for the Future and eventually solve global warming and the future is full of solar powered blimps.
+
+***
+
 **Author Information:** Kim Stanley Robinson lives in Davis California on some kind of pretty normal sounding micro hippie commune based on some kind of European community where people have their own houses but shared spaces like a playground etc. He has 2 or 3 kids and his wife is an accomplished environmental scientist specializing in water management.
 
 ***
