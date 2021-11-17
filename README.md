@@ -41,3 +41,17 @@ In terms of geography the book takes place mainly in a handful of locations spre
 **Important Pages:**
 
 **What Would You Like to Change in the Story:**
+
+**What Happened in the Beginning of the Story:**
+
+**What Happened in the Middle of the Story:**
+
+**What Happened at the End of the Story:**
+
+**Did You Like the Book, Why or Why Not:**
+
+**Who Was Your Favorite Character & Why:**
+
+**Would You Recommend the Book to a Friend:**
+
+**What was Your Favorite Part of the Story:**
